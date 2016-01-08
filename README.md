@@ -3,6 +3,6 @@ Everyday I read a lot, and if i dont keep it in somewhere, this peice of knowled
 
 
 # Me
-  *Linkedin: https://www.linkedin.com/in/lengocthach
-  *My blog: http://runikitkat.com
-  *Twitter: https://twitter.com/runivn
+  1.Linkedin: https://www.linkedin.com/in/lengocthach
+  2.My blog: http://runikitkat.com
+  3.Twitter: https://twitter.com/runivn
